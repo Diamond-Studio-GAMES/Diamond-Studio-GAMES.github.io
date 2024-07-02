@@ -1,1 +1,1 @@
-Diamond Studio GAMES official website
+Diamond Studio GAMES Official Website
